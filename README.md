@@ -20,7 +20,24 @@
 
 ![Screenshot (204)](https://user-images.githubusercontent.com/72779594/172013221-45466d8b-ee42-49b4-9624-d4987b029aa8.png)
 
+![Screenshot (205)](https://user-images.githubusercontent.com/72779594/172432546-d56018e3-75ff-4ecf-b45b-066941863296.png)
 
+![Screenshot (206)](https://user-images.githubusercontent.com/72779594/172432621-121d1eab-3f53-43ab-aec8-09418abd5912.png)
+
+![Screenshot (207)](https://user-images.githubusercontent.com/72779594/172432681-231e15ef-b330-4bb8-a451-0d20d8576a35.png)
+
+![Screenshot (208)](https://user-images.githubusercontent.com/72779594/172432710-055ac732-58c6-4e3f-a5c4-ad3db12f7aca.png)
+
+![Screenshot (209)](https://user-images.githubusercontent.com/72779594/172432796-0d2452fb-63ef-4ee8-a751-82dd3e1cf365.png)
+
+![Screenshot (210)](https://user-images.githubusercontent.com/72779594/172432836-322d58df-dbf5-44e9-80a0-1d15768d9549.png)
+
+![Screenshot (211)](https://user-images.githubusercontent.com/72779594/172432898-91924fe0-1d9b-49ac-a5db-9e7cd0c44c66.png)
+
+![Screenshot (212)](https://user-images.githubusercontent.com/72779594/172432944-38bc2755-69af-4447-83e7-15e8c66bc60a.png)
+
+
+            --------------------------------------- TUGAS ---------------------------------
 
 
 
