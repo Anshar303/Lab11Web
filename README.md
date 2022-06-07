@@ -37,8 +37,13 @@
 ![Screenshot (212)](https://user-images.githubusercontent.com/72779594/172432944-38bc2755-69af-4447-83e7-15e8c66bc60a.png)
 
 
-            --------------------------------------- TUGAS ---------------------------------
+           # --------------------------------------- TUGAS ---------------------------------
 
+![Screenshot (213)](https://user-images.githubusercontent.com/72779594/172433305-37e2d27b-a8ce-4b6a-9d03-ae9720a6c570.png)
+
+![Screenshot (214)](https://user-images.githubusercontent.com/72779594/172433345-5420666d-ed64-4123-a4cd-f8f66755e9f6.png)
+
+![Screenshot (215)](https://user-images.githubusercontent.com/72779594/172433376-5fff7a74-ac09-4458-8baa-dc64cf2ca936.png)
 
 
 
